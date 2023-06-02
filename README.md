@@ -1,2 +1,2 @@
-Hello,  I am Olaifa Timothy a problem solver and a FUll stack(Web and Mobile) Developer
+Hello,  I am Olaifa Timothy a problem solver and a Full stack(Web and Mobile) Developer
 
